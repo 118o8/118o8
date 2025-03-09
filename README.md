@@ -16,6 +16,6 @@
 
  ֪࣪ ⠀ 𓂋 ⠀ please  don ’ t  copy  my  skins ,⠀⨥⠀if  you  ask  i  will  let  you! ⠀ ྀ࿐
 
- e x t r a  :  my  first  github  ,  is  it  cute ?
+ e x t r a  :  please stop stealing my skins on ponytown. It makes me uncomfortable to see work i did ripped off without my knowledge. If you see one of my skins copied and I didn't know, please tell me.
 
 ˳ ♰  ⊹  ‿︵︵ ୨ ✙ ୧ ︵︵ ‿⊹  ♰ ˳ 
