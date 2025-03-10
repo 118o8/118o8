@@ -14,8 +14,8 @@
 
 ◞◟ ͜ ◞ ྀི ͏͏͏͏͏͏ ͏͏͏͏͏͏c  +  h⠀ always ! ͏͏͏͏͏͏ ͏͏͏͏͏͏ ͏͏͏͏͏͏ ྀི◟ ͜ ◞◟
 
- ֪࣪ ⠀ 𓂋 ⠀ please  don ’ t  copy  my  skins ,⠀⨥⠀if  you  ask  i  will  let  you! ⠀ ྀ࿐
+ ֪࣪ ⠀ 𓂋 ⠀ extremely introverted , if you want to be friends interact first ⠀ ྀ࿐
 
- e x t r a  :  please stop stealing my skins on ponytown. It makes me uncomfortable to see work i did ripped off without my knowledge. If you see one of my skins copied and I didn't know, please tell me.
+ e x t r a  :  kisses my lovely reikouu
 
 ˳ ♰  ⊹  ‿︵︵ ୨ ✙ ୧ ︵︵ ‿⊹  ♰ ˳ 
