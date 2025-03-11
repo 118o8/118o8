@@ -1,12 +1,16 @@
-![](https://i.postimg.cc/1tdJtK8m/appletop.png)
+![](https://i.postimg.cc/fRTyMm3c/top.png)
 
-૮ ˶ᵔ ᵕ ᵔ˶ ა ari ──  candy apple ![](https://i.postimg.cc/nhzrY8Th/heart.gif) ⊹ ࣪ ˖
-![](https://i.postimg.cc/TP5PFrz8/swirl.gif) .☘︎ ݁˖ she / him 
-꒰ᐢ. .ᐢ꒱ female ![](https://i.postimg.cc/v8tZJ8Nm/card.gif) 1*6* yrs ୭ ˚. ᵎ 
-   
-![](https://i.postimg.cc/g0NM9pd6/applemid.png)
+![](https://i.postimg.cc/zDxX0323/coffin.gif)⠀⤹⠀ari⠀✮⠀azure⠀(¬_¬")⠀she / he
 
-𓏵  ![](https://i.postimg.cc/tT0gjsbs/flowers.gif) ꒷꒦︶ dissociative  identity  disorder  .  Audhd ┆ ⤿ ![](https://i.postimg.cc/8PkzN82m/apple.webp) ⌗
-જ⁀➴  (,,>﹏<,,) other info*!*  /  please interact with me if you see me on ponytown! i am extremely introverted, i’ll never approach.
+◜ 𓏴  ![](https://i.postimg.cc/NFCsMP2R/ds.gif) trans man  ,   ⤸
 
-![](https://i.postimg.cc/26y0rt89/applebtm.png)
+𓈒⠀"⠀dissociative  identity  disorder⠀!~&&~!⠀autism  adhd⠀⸸⠀![](https://i.postimg.cc/d1vtSCKZ/folder.png)
+
+![](https://i.postimg.cc/RVTqrX0C/mid.png)
+〔⠀![](https://i.postimg.cc/MKXZ4xg5/kiss.gif)⠀〕⠀﹐⠀！⠀extra⠀✦◝
+-  feel free to interact with me on ponytown ! i like to make friends , but i ' m extremely introverted .
+
+- a little quiet at first , but feel free to cuddle  or  hide anytime !⠀｀⠀？⠀![](https://i.postimg.cc/9MpF3fW8/tv.gif)
+
+- credits for the art go to kelcair on twitter, and [puerile](https://neospring.org/@puerile) for graphics !~
+![](https://i.postimg.cc/4xLdyytr/btm.png)
