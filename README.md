@@ -1,8 +1,10 @@
 ![](https://files.catbox.moe/84m9po.png)
 
-![](https://i.postimg.cc/zDxX0323/coffin.gif)⠀⤹⠀ari⠀✮⠀azure⠀(¬_¬")⠀
+![](https://i.postimg.cc/zDxX0323/coffin.gif)⠀💭﹕azure ari  ! he / him ★
 
-◜ 𓏴  ![](https://i.postimg.cc/NFCsMP2R/ds.gif) trans man  , she / he  ⤸
+⭔﹒trans man  .  abrosxual ⊂📼⊃ masculine terms ʬʬ 
+
+ 16yo ﹢﹒< milos tea 3 ﹐
 
 𓈒⠀"⠀dissociative  identity  disorder ( DID )⠀!~&~!⠀audhd . be patient with me⠀⸸⠀![](https://i.postimg.cc/d1vtSCKZ/folder.png)
 
