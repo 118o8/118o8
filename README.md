@@ -1,18 +1,16 @@
 ![](https://files.catbox.moe/uuh405.gif)
 
-![](https://files.catbox.moe/39jobw.gif)⠀﹕eunoia ari  ! she / him ★
+![](https://files.catbox.moe/39jobw.gif)⠀⸺⠀ㅤ cora  /  eunoiaㅤ𐚁̷ .ㅤ⠀⠀she ノ they⠀⠀◞  . 
 
-⭔﹒trans man  .  abrosxual ⊂⊃ masculine / feminine terms ʬʬ 
-
- 16yo ﹢﹒minor ! ﹐
-
-𓈒⠀"⠀dissociative  identity  disorder ( DID )⠀!~&~!⠀audhd . be patient with me⠀⸸⠀![](https://files.catbox.moe/yos9nh.gif)
+⠀♡⠀⠀,⠀minor  !⠀⠀𑇛⠀⠀{ ![](https://files.catbox.moe/yos9nh.gif) }⠀૮ ོ .• ༝ •.   ོ𑁬 
+⠀⠀𐔌 、⠀feminine terms　︵︵　![](https://files.catbox.moe/6jrzdw.gif)﹒⠀pansx⠀⠀⠀月亮<-
 
 ![](https://files.catbox.moe/9gplwd.gif)
-〔⠀![](https://files.catbox.moe/0sxaca.gif) ⠀〕⠀﹐⠀！⠀extra⠀✦◝
-- ' feel free to interact with me on ponytown ! i like to make friends , but i ' m extremely introverted .
 
-- ' a little quiet at first , idrc if you c / h just dont be rude to me ｀⠀？⠀![](https://i.postimg.cc/9MpF3fW8/tv.gif)
+  ⠀ audhd ⠀  ⠀ ![](https://files.catbox.moe/0sxaca.gif)  ᯇ⠀  ⠀' ⠀  ⠀ free c + h on ponytown. ⠀  ⠀◟ 天 ◝
+
+✧  ࿁  ˙⠀It is more likely for ghost ships to exist than it is for me to lie to you⠀!⠀ : ⠀ 𖹭 ⠀ ⠀ˊ 
+
 ![](https://files.catbox.moe/45acna.gif)
 
  credits for the art are @ kelcair on twitter, and @ [puerile](https://neospring.org/@puerile) for graphics 
