@@ -1,16 +1,15 @@
-![](https://files.catbox.moe/uuh405.gif)
+![](https://files.catbox.moe/bwvjac.gif)
 
-![](https://files.catbox.moe/39jobw.gif)⠀⸺⠀ㅤ cora  /  eunoiaㅤ𐚁̷ .ㅤ⠀⠀she ノ they⠀⠀◞  . 
+![](https://files.catbox.moe/nvka1o.gif) ⠀⠀꒰୨୧◞ 。⠀cora  mafi⠀.ᐟ⠀⠀minor .⠀⠀⠀⠀she⠀ﾉ they⠀⠀⠀₊ ˚⊹
 
-⠀♡⠀⠀,⠀minor  !⠀⠀𑇛⠀⠀{ ![](https://files.catbox.moe/yos9nh.gif) }⠀૮ ོ .• ༝ •.   ོ𑁬 
-⠀⠀𐔌 、⠀feminine terms　︵︵　![](https://files.catbox.moe/6jrzdw.gif)﹒⠀pansx⠀⠀⠀月亮<-
+ ﹒　＋　﹒　feminine  terms　　﹒ ![](https://files.catbox.moe/hhqmbu.gif) pansx  +  demigirl  ﹒⁾⁾ 
 
-![](https://files.catbox.moe/9gplwd.gif)
+ ﹒︵ 　![](https://files.catbox.moe/7ji5l7.gif)　 ﹕　　　  ⋆ ◞　![](https://files.catbox.moe/y4brej.gif)
 
-  ⠀ audhd ⠀  ⠀ ![](https://files.catbox.moe/0sxaca.gif)  ᯇ⠀  ⠀' ⠀  ⠀ free c + h on ponytown. ⠀  ⠀◟ 天 ◝
+![](https://files.catbox.moe/li7uag.gif)
 
-✧  ࿁  ˙⠀It is more likely for ghost ships to exist than it is for me to lie to you⠀!⠀ : ⠀ 𖹭 ⠀ ⠀ˊ 
+  ⠀![](https://files.catbox.moe/y4brej.gif)  ᯇ⠀  ⠀' ⠀  ⠀ free c + h on ponytown !⠀  ⠀◟  ◝
 
-![](https://files.catbox.moe/45acna.gif)
+✧  ࿁  ˙⠀i  don ' t  care  much  about  you , but  i⠀ wouldn ' t  mind  if  you liked me  too ! : ⠀ 𖹭 ⠀ ⠀ˊ 
 
- credits for the art are @ kelcair on twitter, and @ [puerile](https://neospring.org/@puerile) for graphics 
+![](https://files.catbox.moe/qkuxmo.gif)
