@@ -1,15 +1,13 @@
-![](https://files.catbox.moe/bwvjac.gif)
+![](https://files.catbox.moe/3vfiul.png)
 
-![](https://files.catbox.moe/nvka1o.gif) ⠀⠀꒰୨୧◞ 。⠀cora  mafi⠀.ᐟ⠀⠀minor .⠀⠀⠀⠀she⠀ﾉ they⠀⠀⠀₊ ˚⊹
+𓏵 ︵︵⠀𓈒　⠀cora  chance⠀.⠀⠀ᛝ⠀minor⠀⠀.ᐟ.ᐟ 　![](https://files.catbox.moe/x0baqi.gif)
 
- ﹒　＋　﹒　feminine  terms　　﹒ ![](https://files.catbox.moe/hhqmbu.gif) pansx  +  demigirl  ﹒⁾⁾ 
+✜⠀⠀![](https://files.catbox.moe/4q8nqz.gif)⠀⠀❝⠀⠀she / they⠀⠀❞⠀⠀✩⠀°⠀｡⠀feminine  terms 𝜚　˙
 
- ﹒︵ 　![](https://files.catbox.moe/7ji5l7.gif)　 ﹕　　　  ⋆ ◞　![](https://files.catbox.moe/y4brej.gif)
+˗ˏˋ ★⠀⠀demigirl , pansx⠀⠀𓈒⠀⠀🎲⠀⠀![](https://files.catbox.moe/h6o7pt.gif)⠀⠀˶ᵔ ᵕ ᵔ˶
 
-![](https://files.catbox.moe/li7uag.gif)
+![](https://files.catbox.moe/jt589h.png)
+![](https://files.catbox.moe/sajs27.gif)  ⸝⸝⠀⠀free  c + h⠀◞⠀dni  weirdos⠀+ int if u see me !⠀𓎟𓎟⠀⠀⁺⠀⠀.⠀
 
-  ⠀![](https://files.catbox.moe/y4brej.gif)  ᯇ⠀  ⠀' ⠀  ⠀ free c + h on ponytown !⠀  ⠀◟  ◝
-
-✧  ࿁  ˙⠀i  don ' t  care  much  about  you , but  i⠀ wouldn ' t  mind  if  you liked me  too ! : ⠀ 𖹭 ⠀ ⠀ˊ 
-
-![](https://files.catbox.moe/qkuxmo.gif)
+⟶ ◟ ☆⠀⠀sweetness, sweetness i was only joking when i said⠀⠀ᵔ⠀⠀.⠀⠀i want to mash every tooth in your head⠀⠀‹𝟹⠀⠀![](https://files.catbox.moe/jsmox3.gif)⠀
+![](https://files.catbox.moe/tqfn52.png)
