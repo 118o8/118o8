@@ -1,13 +1,11 @@
-![](https://files.catbox.moe/3vfiul.png)
+![](https://files.catbox.moe/uuh405.gif)
+![](https://files.catbox.moe/39jobw.gif)⠀⸺⠀ㅤ cora  eunoiaㅤ𐚁̷ .ㅤ⠀⠀she  ノ  they⠀⠀◞  . 
 
-𓏵 ︵︵⠀𓈒　⠀cora  chance⠀.⠀⠀ᛝ⠀minor⠀⠀.ᐟ.ᐟ 　![](https://files.catbox.moe/x0baqi.gif)
+⠀♡⠀⠀,⠀fem terms  !⠀⠀𐪞⠀⠀minor⠀𑇛⠀⠀{ ![](https://files.catbox.moe/yos9nh.gif) }⠀૮ ོ .• ༝ •.   ོ𑁬 
 
-✜⠀⠀![](https://files.catbox.moe/4q8nqz.gif)⠀⠀❝⠀⠀she / they⠀⠀❞⠀⠀✩⠀°⠀｡⠀feminine  terms 𝜚　˙
+⠀⠀𐔌 、⠀pansx　︵︵　![](https://files.catbox.moe/6jrzdw.gif)﹒⠀
+![](https://files.catbox.moe/9gplwd.gif)
+★  ⠀ i  don ' t  care  much . .  ⠀  ⠀ ![](https://files.catbox.moe/0sxaca.gif)  ᯇ⠀  ⠀' ⠀  ⠀ about  you. ⠀  ⠀◟ 天 ◝
 
-˗ˏˋ ★⠀⠀demigirl , pansx⠀⠀𓈒⠀⠀🎲⠀⠀![](https://files.catbox.moe/h6o7pt.gif)⠀⠀˶ᵔ ᵕ ᵔ˶
-
-![](https://files.catbox.moe/jt589h.png)
-![](https://files.catbox.moe/sajs27.gif)  ⸝⸝⠀⠀free  c + h⠀◞⠀dni  weirdos⠀+ int if u see me !⠀𓎟𓎟⠀⠀⁺⠀⠀.⠀
-
-⟶ ◟ ☆⠀⠀sweetness, sweetness i was only joking when i said⠀⠀ᵔ⠀⠀.⠀⠀i want to mash every tooth in your head⠀⠀‹𝟹⠀⠀![](https://files.catbox.moe/jsmox3.gif)⠀
-![](https://files.catbox.moe/tqfn52.png)
+✧  ࿁  ˙⠀. . but  i  wouldn ' t  mind  if  you  liked  me  too⠀ : ⠀ 𖹭 ⠀  ˋ⠀![](https://files.catbox.moe/u7lqco.gif)
+![](https://files.catbox.moe/45acna.gif)
