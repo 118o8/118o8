@@ -1,15 +1,7 @@
-![](https://files.catbox.moe/uuh405.gif)
+hi im gonna rmk these soon i want my github to be noli themed~
 
-->![](https://files.catbox.moe/39jobw.gif)⠀⸺⠀ㅤ eunoia  or  ariㅤ𐚁̷ .ㅤ⠀⠀she ノ they⠀⠀◞  . <-
+emi / noli
 
-->⠀♡⠀  !⠀⠀𐪞⠀⠀minor⠀𑇛⠀⠀{ ![](https://files.catbox.moe/yos9nh.gif) }⠀૮ ོ .• ༝ •.   ོ𑁬 <-
+ask 4 my dc
 
-->⠀⠀𐔌 、⠀fem / fem terms　︵︵　![](https://files.catbox.moe/6jrzdw.gif)﹒⠀bisx  +  no pref⠀⠀⠀<-
-
-![](https://files.catbox.moe/9gplwd.gif)
-
-->★  ⠀ feel  free  to  c + h ⠀  ⠀ ![](https://files.catbox.moe/0sxaca.gif)  ᯇ⠀  ⠀' ⠀  ⠀ dncopy  my  skins . ⠀  ⠀◟  ◝<-
-
-->✧  ࿁  ˙⠀⠀your  beauty  never  ever  scared  me . .⠀⋯⠀ : ⠀ 𖹭 ⠀ ⠀
-
-![](https://files.catbox.moe/45acna.gif)
+minor dni weirdos
