@@ -1,4 +1,4 @@
-hi im gonna rmk these soon i want my github to be noli themed~
+hi im gonna rmk these soon i want my github to be elliot themed
 
 emi / noli
 
