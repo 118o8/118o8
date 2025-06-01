@@ -1,7 +1,10 @@
-hi im gonna rmk these soon i want my github to be elliot themed
+❝﹒✢﹒﹒eliany   ⠀♪ྀི eli
 
-emi / noli
+﹒✽﹒she. they，✢
 
-ask 4 my dc
+⇆﹐☓﹒pansx demigirl ﹐
 
-minor dni weirdos
+✿﹒〣﹒﹒afro-american
+
+
+wip + i ' ll add graphics here soon
